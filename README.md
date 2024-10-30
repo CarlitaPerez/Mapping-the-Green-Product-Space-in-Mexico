@@ -1,5 +1,6 @@
 ![image](https://github.com/user-attachments/assets/1eb2c74e-73c0-4f3a-9022-e1b3b644755c)
-![image](https://github.com/user-attachments/assets/5ff51000-cc9e-4f45-8e7f-f083b4aea953)
+![image](https://github.com/user-attachments/assets/35eb19fd-7a78-4d8b-876b-6d25f2f3aa8c)
+
 
 
 # Mapping-the-Green-Product-Space-in-Mexico
